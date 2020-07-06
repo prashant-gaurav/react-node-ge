@@ -1,1 +1,1 @@
-# all right reserved to prashant gaurav
+# All right reserved to Prashant Gaurav
